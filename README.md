@@ -1,1 +1,1 @@
-### Research Interests: Computational Social Science, Misinformation, Networks, Machine Learnin
+### Research Interests: Computational Social Science, smallville
