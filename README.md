@@ -1,1 +1,1 @@
-### Research Interests: Computational Social Science, smallville
+### Research Interests: Computational Social Science
